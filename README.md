@@ -13,4 +13,9 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Email
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a dog.
+
+RESUME:
+Elise Hart
+Computer Science and Design
+Expected graduation 2027
 -->

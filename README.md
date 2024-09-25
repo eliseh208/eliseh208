@@ -2,5 +2,5 @@
 
 
 Elise Hart
-Computer Science and Design
+Computer Science & Media Arts
 Expected graduation 2027
